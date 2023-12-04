@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gr8fulbishop
-- 👀 I’m interested in real estate, Blockchain, AT, and other Web3 technologies
+- 👀 I’m interested in real estate, Blockchain, AI, and other Web3 technologies
 - 🌱 I’m currently learning AI and Machine Learning (ML)
 - 💞️ I’m looking to collaborate on real estate and Blockchain type projects
 - 📫 How to reach me www.JonathanMickles.com
